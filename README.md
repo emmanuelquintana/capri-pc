@@ -12,4 +12,4 @@ Entra a **[Releases › la más nueva](https://github.com/emmanuelquintana/capri
 
 Una vez instalada, Capri se actualiza sola.
 
-Comunidad: [Discord](https://discord.gg/d8tsTKMhN) · [TikTok](https://www.tiktok.com/@emma180516_) · Hecha por Emma.
+Comunidad: [Discord](https://discord.gg/hmh783tfn) · [TikTok](https://www.tiktok.com/@emma180516_) · Hecha por Emma.
